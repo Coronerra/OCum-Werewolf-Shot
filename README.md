@@ -1,5 +1,8 @@
 <div align="center">
 
+# ⚠️ DEPRECIATED! ⚠️
+> # GO TO (https://github.com/Coronerra/OStim-Beast-Form/)
+
 # 🐺💦 OCum Werewolf Shot
 
 **Makes OCum Ascended's cum shot come from the tip of the ABC werewolf cock, aimed along the shaft.**
